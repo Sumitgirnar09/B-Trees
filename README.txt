@@ -1,4 +1,4 @@
-Laura Richards
+Laura Richards  
 Assignment # 1 - CIS 6030
 *********************************
 
