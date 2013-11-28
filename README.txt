@@ -1,4 +1,4 @@
-Laura Richards - 0546192
+Laura Richards
 Assignment # 1 - CIS 6030
 *********************************
 
